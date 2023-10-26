@@ -1,0 +1,1 @@
+[https://github.com/AndresGVW/github-final-project/blob/main/CODE_OF_CONDUCT.md](https://github.com/AndresGVW/github-final-project/blob/main/CODE_OF_CONDUCT.md)https://github.com/AndresGVW/github-final-project/blob/main/CODE_OF_CONDUCT.md
